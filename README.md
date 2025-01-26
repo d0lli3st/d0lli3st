@@ -9,8 +9,6 @@
 
 ⊱ **DNI** ; -12 and +19, racist, homophobic, proshippers, u hate my faves, u hate me. 
 
-⊱ **BYI** ; I don't like sharing my personal stuff, dms are open, I do grammatical errors a lot + curses a lot + get typos a lot, I may or may not reply to you fast, if I make you uncomfy don't be shy to dm me about it
-
 
 anyone can interact as long as you don't fit the dni
 
