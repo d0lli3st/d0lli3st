@@ -13,7 +13,7 @@ anyone can interact as long as you don't fit the dni
 
 ✧
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=julietsdistress&label=visitors%20<3&color=9E8BD9&style=flat" alt="julietsdistress" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=julietsdistress&label=visitors%20<3&color=dbc58d&style=flat" alt="julietsdistress" /> </p>
 
 <!--
 **julietsdistress/julietsdistress** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
