@@ -2,7 +2,7 @@
 
 ✧ 
 
-⊱ you can call me... saint, lee, fischl or misa (idm all of them) 
+⊱ you can call me... saint, lee, fischl or misa (idm some of them) 
 
 ⊱ morr about me ; im 15,aro ace, infj, 9w1, and GMT+9 !! 
 
