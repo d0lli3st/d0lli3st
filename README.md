@@ -5,8 +5,12 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=julietsdistress&label=visitors%20<3&color=cbc6c6&style=flat" alt="julietsdistress" /> </p>
 
-<!--
-**julietsdistress/julietsdistress** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Image](https://github.com/user-attachments/assets/8700cd10-ed8c-4b04-a517-6ea9a4085e81)
+
+
+
+
+<!--**julietsdistress/julietsdistress** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
