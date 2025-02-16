@@ -1,6 +1,7 @@
 ![Image](https://github.com/user-attachments/assets/38acd9c7-1723-4dcf-bb1e-d21c9eea0bfc)
 
-<p align="center"> ♱ㅤ꒰ㅤ𝙎𝘼𝙄𝙉𝙏 or 𝙇𝙀𝙀 shi ⋆ he ノthy 
+<p align="center"> ♱ㅤ꒰ㅤ𝑺aint or 𝑳ee shi ⋆ hir ノthyㅤ꒱
+<p align="center"> 5𝑡𝑒𝑒𝑛ㅤaro 𝘢𝘤𝘦 ┆ infjㅤ+ 9w1
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=julietsdistress&label=visitors%20<3&color=cbc6c6&style=flat" alt="julietsdistress" /> </p>
 
