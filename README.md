@@ -16,9 +16,11 @@
 <p align="center"> ꒰ঌㅤDO NOT INTERACTㅤ໒꒱.+
 <p align="center"> basic dni, u hate me, proship, cat haters, scara haters, lumine skins, you think scara is an uwu boy ( automatic block) 
 
+<p align="center"> ୨ৎㅤ︶︶ㅤ⊹ㅤ︶︶ㅤ୨ৎ 
+ 
  <p align="center"> anyone can interact as long as you don't fit the dni. 
-  
-  ![Image](https://github.com/user-attachments/assets/8700cd10-ed8c-4b04-a517-6ea9a4085e81)
+
+![Image](https://github.com/user-attachments/assets/8700cd10-ed8c-4b04-a517-6ea9a4085e81)
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=julietsdistress&label=visitors%20<3&color=cbc6c6&style=flat" alt="julietsdistress" /> </p>
 
