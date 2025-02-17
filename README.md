@@ -3,8 +3,8 @@
 <p align="center"> ♱ㅤ꒰ㅤ𝓼aint or 𝓁eeㅤshi ⋆ hir ノ𝓉ℎ𝓎ㅤ꒱
 <p align="center"> 5𝑡𝑒𝑒𝑛ㅤfil𝑖𝑝𝑖𝑛𝓸 ┆ 𝑖𝑛𝑓𝑗ㅤ+ 9𝑤1
 <p align="center"> ୨ৎㅤ︶︶ㅤ⊹ㅤ︶︶ㅤ୨ৎ 
-<p align="center"> ꒰ঌㅤc+h freely and dnc my poniesㅤ໒꒱.+
-
+<p align="center"> ꒰ঌㅤDNIㅤ໒꒱.+
+<p align="center"> basic dni, proship, cat haters, scara haters, you think scara is an uwu boy
 
   ![Image](https://github.com/user-attachments/assets/8700cd10-ed8c-4b04-a517-6ea9a4085e81)
 
