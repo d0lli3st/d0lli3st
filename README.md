@@ -9,9 +9,15 @@
 <p align="center"> ⛔ ~ not in the mood ig, so do not interact, or do not interact unless friend, or do not interact unless I do, depends on what I add on my name. 
 
 <p align="center"> ୨ৎㅤ︶︶ㅤ⊹ㅤ︶︶ㅤ୨ৎ
-<p align="center"> ꒰ঌㅤDNIㅤ໒꒱.+
-<p align="center"> basic dni, proship, cat haters, scara haters, you think scara is an uwu boy
 
+<p align="center"> ꒰ঌㅤBEFORE YOU INTERACTㅤ໒꒱.+
+<p align="center"> nsfw jokes hehe, I can be really clingy sumtimes, I'm a massive hater of lumine ( im not sorry) kys/kms jokes, I mispell texts on purpose. 
+
+<p align="center"> ꒰ঌㅤDO NOT INTERACTㅤ໒꒱.+
+<p align="center"> basic dni, u hate me, proship, cat haters, scara haters, lumine skins, you think scara is an uwu boy ( automatic block) 
+
+ <p align="center"> anyone can interact as long as you don't fit the dni. 
+  
   ![Image](https://github.com/user-attachments/assets/8700cd10-ed8c-4b04-a517-6ea9a4085e81)
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=julietsdistress&label=visitors%20<3&color=cbc6c6&style=flat" alt="julietsdistress" /> </p>
