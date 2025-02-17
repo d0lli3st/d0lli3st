@@ -5,7 +5,7 @@
 <p align="center"> ୨ৎㅤ︶︶ㅤ⊹ㅤ︶︶ㅤ୨ৎ 
 
 <p align="center"> 🟢 ~ feel free to int!! 
-<p align="center"> 🌙 ~ prolly afk or just or just busy but will check every now and then ^^ ( whisper only ) 
+<p align="center"> 🌙 ~ prolly afk/offtab or just or just busy but will check every now and then ^^ ( whisper only ) 
 <p align="center"> ⛔ ~ not in the mood ig, so do not interact, or do not interact unless friend, or do not interact unless I do, depends on what I add on my name. 
 
 <p align="center"> ୨ৎㅤ︶︶ㅤ⊹ㅤ︶︶ㅤ୨ৎ
