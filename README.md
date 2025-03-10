@@ -14,7 +14,7 @@
 <p align="center"> nsfw jokes hehe, I can be really clingy sumtimes, kys/kms jokes, I mispell texts on purpose. 
 
 <p align="center"> ꒰ঌㅤDO NOT INTERACTㅤ໒꒱.+
-<p align="center"> basic dni, u hate me, proship, cat haters, scara haters, scaralumi, sethoscara, you think scara is an uwu boy ( automatic block) 
+<p align="center"> basic dni, u hate me, proship, cat haters, scara haters, scaramona haters (yall make me upset fr >:c )scaralumi, sethoscara, you think scara is an uwu boy ( automatic block) 
 
 <p align="center"> ୨ৎㅤ︶︶ㅤ⊹ㅤ︶︶ㅤ୨ৎ 
  
