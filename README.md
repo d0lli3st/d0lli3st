@@ -22,7 +22,8 @@
  
  <p align="center"> anyone can interact as long as you don't fit the dni. 
 
- <p align="center"> discord: saintte.
+
+ <p align="center"> ꒰ঌㅤdiscord: saintte.ㅤ໒꒱.+
 
 ![Image](https://github.com/user-attachments/assets/8700cd10-ed8c-4b04-a517-6ea9a4085e81)
 
