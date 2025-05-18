@@ -2,7 +2,7 @@
 
 ![Image](https://github.com/user-attachments/assets/38acd9c7-1723-4dcf-bb1e-d21c9eea0bfc)
 
-<p align="center"> ♱ㅤ꒰ㅤ𝓼aint or 𝓷oahㅤshi ⋆ hir ノ𝓉ℎ𝓎ㅤ꒱
+<p align="center"> ♱ㅤ꒰ㅤ𝓼aint or 𝓷oahㅤhe ⋆ him ノ𝓉ℎ𝓎ㅤ꒱
 <p align="center"> 𝐗𝐕𝐈ㅤfil𝑖𝑝𝑖𝑛𝓸 ┆ 𝑖𝑛𝑓𝑗ㅤ+ 9𝑤1
 <p align="center"> ୨ৎㅤ︶︶ㅤ⊹ㅤ︶︶ㅤ୨ৎ 
 
