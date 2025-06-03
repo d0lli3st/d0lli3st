@@ -1,6 +1,7 @@
 <div id="header" align="center">
 
-![Image](https://github.com/user-attachments/assets/8c5069b7-e2e8-4bc5-84cf-41108a27d820)
+![Image](https://github.com/user-attachments/assets/0f081fb1-fa0b-466b-a029-db598695999c)
+
 <p align="center"> ♱ㅤ꒰ㅤ𝓼aint or 𝓷oahㅤhe ⋆ hym ノ𝓉ℎ𝓎ㅤ꒱
 <p align="center"> 𝐗𝐕𝐈ㅤfil𝑖𝑝𝑖𝑛𝓸 ┆ 𝑖𝑛𝑓𝑗ㅤ+ 9𝑤1
 <p align="center"> ୨ৎㅤ︶︶ㅤ⊹ㅤ︶︶ㅤ୨ৎ 
