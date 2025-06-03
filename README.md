@@ -27,7 +27,7 @@
 
 ![Image](https://github.com/user-attachments/assets/8700cd10-ed8c-4b04-a517-6ea9a4085e81)
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=julietsdistress&label=visitors%20<3&color=cbc6c6&style=plastic" alt="julietsdistress" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=julietsdistress&label=colony&color=222226&style=plastic" alt="julietsdistress" /> </p>
 
 
 
